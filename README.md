@@ -217,4 +217,4 @@ Green Moon is offered as a full free version with all features and updates inclu
 Embark on your epic adventure today! Download Green Moon now and dive into a world of time travel and puzzle-solving excitement!
 
 ---
-**Last updated:** 2026-10-18 15:01:42 UTC
+**Last updated:** 2026-10-18 18:20:23 UTC
